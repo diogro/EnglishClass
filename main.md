@@ -1,12 +1,14 @@
-##Scientific English and proficiency tests
+##English for advanced studies
 
-Practice English conversation, writing and translation with an experienced American teacher.
+Focus on the subject of your choice.
 
-Lessons can be focused on technical and medical English, as preparation for academic proficiency tests, interviews and oral presentations.
+Improve your English comprehension, conversation, writing or translation with an experienced American teacher, at affordable rates.
 
-Practice by telephone and Skype, at reasonable rates and flexible hours to fit your changing schedule and avoid loss of valuable opportunities.
+Prepare for English academic proficiency tests, interviews and presentations in business, medicine, science and technology.
 
-Call me for a trial class at no cost.
+Lessons by Skype, telephone or in person at USP.
 
+Hours may be flexible to fit your changing schedule and avoid losing opportunities.
 
+Give me a call for a trial class at no cost.
 
